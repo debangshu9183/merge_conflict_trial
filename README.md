@@ -1,2 +1,2 @@
-# updated developer\_b story 
+# updated developer\_b stories 
 
